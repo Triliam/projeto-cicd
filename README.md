@@ -5,4 +5,7 @@ Este é um projeto muito interessante!
 
 Deveras!
 
-Minha mudaça Gustavo.
+muito gratificante poder compartilhar conhecimento em um trabalho conjunto de meus colegas, GRATO! RODRIGO.
+
+
+
